@@ -1,2 +1,2 @@
-# G-nial---deutsch-
+# Genial---deutsch-
 Document officiel manuels d'allemand 
